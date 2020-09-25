@@ -22,4 +22,5 @@ En la mercadotecnia en internet, se denomina página de aterrizaje o **Landing P
 [Cuenta de Twitter](https://twitter.com/niche66999)
 2020
 
-Cali
+Cali-Colombia
+
